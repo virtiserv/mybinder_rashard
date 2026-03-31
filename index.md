@@ -2,9 +2,12 @@
 layout: default
 mathjax: true
 ---
+
 # Currently Compiling 
 `jekyll.version`  {{ jekyll.version }}
 
+
+# Currently Compling g_e, [m/s^2](https://eyes.nasa.gov/apps/dsn-now/dsn.html)
 
 
 <meta http-equiv="content-type" content="text/html; charset=UTF-8"><meta name="viewport" content="width=device-width, initial-scale=1"><body><table bgcolor="#F5F5F5" style="padding: 0; margin: 0; border: 0; width: 100%;direction:ltr;" align="center">
@@ -458,6 +461,8 @@ inducis
 <video controls  > 
 
 
+<img src="https://static.wixstatic.com/media/5ab381_b8173ccb7c79441294b3ea3341f5b104~mv2.jpg/v1/fill/w_1404,h_1050,al_c,q_85/5ab381_b8173ccb7c79441294b3ea3341f5b104~mv2.jpg" alt="505"/>
+### [Roland DJ-505 - roland.com](https://www.roland.com/global/products/dj-505/)
 <source src="https://ia600307.us.archive.org/10/items/commitmentmaintenance/0000000_AA_0000AVID_20251123_191233_244.mp4" type="video/mp4">
 
 
