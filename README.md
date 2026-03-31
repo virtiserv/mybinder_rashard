@@ -1,9 +1,47 @@
-# Rashard Kelly NasaJpl MRO JUNO iSS
 
 
 ![mc](https://web.archive.org/web/20060622000110im_/http://mpfwww.jpl.nasa.gov/martianchronicle/martianchron5/masthead5.gif)
+# Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 
+![image](https://github.com/user-attachments/assets/5be21c81-f8bd-4505-b33f-2fe7c7e1350e)
 
+<img alt="image" src="https://github.com/user-attachments/assets/04c90641-d5b5-4674-81da-bf6e9f46d8cc" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/977e64a8-9b3b-47cf-a3e8-83656260b0d4" />
+<img alt="image" src="https://github.com/user-attachments/assets/d5b35a42-c06b-4836-8642-1782cc07246e" />
+
+![133356182_1820944668067182_5036319584717506336_n @blackgirlscode @howard-university-web-services @la-county-isd @cityoflosangeles @stateofcalifornia](https://github.com/user-attachments/assets/da438ea8-a722-450e-b243-f80e522c5181)
+
+<img alt="image" src="https://github.com/user-attachments/assets/fbcc536b-4183-4c23-a501-80a595e04d20" />
+
+ # FaceBook Account
+ ` alt="image trying to make a new facebook account"` 
+ @nasa-jpl @blackgirlscode @nasa-pds @cityoflosangeles @stateofcalifornia
+<img   alt="image trying to make a new facebook account" src="https://github.com/user-attachments/assets/e431a6b7-be69-491f-b8c2-2338f875346c" />
+@meta pleas look for the sting `Re: LosAngeles:Karen Bass / Mark Zuckerberg / Menlo Park City Government [Link] My name is rashard kelly, im a victim of the federal doxxing playboy magazine has been maintaining via foot soldiers in southern california and atlanta. They Login illicitly and disable accounts. Mark can you fix my account ? ThakaSartu and reset the password for Rashard Iman Kelly Ahmed-Osman? I dont have a phone number and geting stopped at the checkpoint URL. -#Rashard NASAEARTHDATA ` in the following accounts 
+```
+"records@fb.com" <records@fb.com>,
+"appeals@fb.com" <appeals@fb.com>,
+"security@facebookmail.com" <security@facebookmail.com>,
+"phish@fb.com" <phish@fb.com>,
+"bnash@menlopark.gov" <bnash@menlopark.gov>,
+"jnwise@menlopark.gov" <jnwise@menlopark.gov>,
+"dcombs@menlopark.gov" <dcombs@menlopark.gov>,
+"jdschmidt@menlopark.gov" <jdschmidt@menlopark.gov>,
+"cttaylor@menlopark.gov" <cttaylor@menlopark.gov>,
+"FHWA.PressOffice@dot.gov" <FHWA.PressOffice@dot.gov>,
+"MediaRelations@fcc.gov" <MediaRelations@fcc.gov>,
+"susana.p.douglas@nasa.gov" <susana.p.douglas@nasa.gov>,
+"lyudmyla.p@nasa.gov" <lyudmyla.p@nasa.gov>,
+"shri.g.agarwal@jpl.nasa.gov" <shri.g.agarwal@jpl.nasa.gov>
+```
+<img   alt="image" src="https://github.com/user-attachments/assets/0c6214e8-de9f-4004-a5a6-7ae99776778b" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/38da1fc7-b5ec-448f-8b4b-c5767818a4ae" />
+
+<img   alt="image trying to make a new facebook account" src="https://github.com/user-attachments/assets/e431a6b7-be69-491f-b8c2-2338f875346c" />
+
+[p.e.b](https://youtu.be/CMMslhJluk4)
 
 <img src="https://private-user-images.githubusercontent.com/218409907/460834760-7ae09a51-3773-4df0-b299-2827b1df1397.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjEzNTAwNzEsIm5iZiI6MTc2MTM0OTc3MSwicGF0aCI6Ii8yMTg0MDk5MDcvNDYwODM0NzYwLTdhZTA5YTUxLTM3NzMtNGRmMC1iMjk5LTI4MjdiMWRmMTM5Ny5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMDI0JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTAyNFQyMzQ5MzFaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0xMGMyNDBlMzJjNzUzMGM5ZTEzMDgwODVmMTJiMWQ0ZGM0YTdkY2MzZWQ4OTllZDRjODU5NDcxMTMyNmJkZGQ4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.E3DREq8_fXqmnuOAXD8Prr7E23fB1Rct0zqdUlWQIOE"/>
 
