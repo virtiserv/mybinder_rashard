@@ -3,7 +3,6 @@ layout: default
 mathjax: true
 ---
 
-# Currently Compiling 
 `jekyll.version`  {{ jekyll.version }}
 
 
