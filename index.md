@@ -11,7 +11,44 @@ mathjax: true
 
 
 ![mc](https://web.archive.org/web/20060622000110im_/http://mpfwww.jpl.nasa.gov/martianchronicle/martianchron5/masthead5.gif)
-# Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
+# Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) 
+
+## LosAngelesDns
+>_Unless a company, university,
+or other group gets an officially sanctioned
+Internet name, it cannot conduct its business over the Net_
+- [ieee.org](https://ieeexplore.ieee.org/stamp/stamp.jsp?arnumber=8048798)
+
+@la-county-isd you guys had the best results in my most recent voayge with [nslookup](https://learn.microsoft.com/en-us/previous-versions/windows/it-pro/windows-xp/bb490721(v=technet.10)?redirectedfrom=MSDN) @CityOfLosAngles Im finxing some css errors [Supervisor Mitchell](https://women.ca.gov/los-angeles-county-supervisor-holly-j-mitchell/) but The [CountyLibrary](https://lacountylibrary.org/) is serving from a [.org](https://www.seerinteractive.com/insights/domain-extensions-101-guide) see [nslookup.io Report](https://www.nslookup.io/domains/lacountylibrary.org/dns-records/) @nasa-jpl but they not on pphostd @whitehouse
+
+<p>
+    <a href="https://jigsaw.w3.org/css-validator/check/referer">
+        <img style="border:0;width:88px;height:31px"
+            src="https://jigsaw.w3.org/css-validator/images/vcss"
+            alt="Valid CSS!" />
+    </a>
+</p>
+
+	  
+## .org defined
+This is an open TLD; any person or entity is permitted to register. Originally created as a miscellaneous category as stated in RFC 920 (October 1984) "...any other domains meeting the second level requirements," and clarified in RFC 1591 (March 1994), "This domain is intended as the miscellaneous TLD for organizations that didn't fit anywhere else. Some non-government organizations may fit here."[9][10] While mainly non-profits have used this domain, it was never restricted from miscellaneous use. - [Wikipedia](https://en.wikipedia.org/wiki/.org)
+[b4](https://web.archive.org/web/20260331202209/https://ra5hard.github.io/) // [women.ca.gov - snapshot](https://web.archive.org/web/20260331203711/https://women.ca.gov/) // [List of Internet top-level domains - wikipedia](https://en.wikipedia.org/wiki/List_of_Internet_top-level_domains) + [The Top-level Domain Name Controversy - @ieee](https://ieeexplore.ieee.org/document/585160) [[1](https://www.facebook.com/groups/309147874725204/posts/930041105969208/)] /// 
+
+![https://upload.wikimedia.org/wikipedia/commons/9/9c/DotORG_logo.svg 50](https://upload.wikimedia.org/wikipedia/commons/9/9c/DotORG_logo.svg)
+	
+```
+W3C CSS Validator results for http://ra5hard.github.io (CSS level 3 + SVG)
+Sorry! We found the following errors (3)
+URI : https://ra5hard.github.io/assets/css/style.css?v=dc80f4b81df2648a0d8efd7c93eb65c57ebb85f4
+1	.scroller	Property container-type doesn't exist : inline-size
+1	.item	Value Error : background-repeat none is not a background-repeat value : none
+URI : https://ra5hard.github.io/
+18	.navbar a	Value Error : padding 10x is not a padding value : 10x 10px
+```
+<img  alt="image" src="https://github.com/user-attachments/assets/756087d1-e276-4ea0-aec6-f114920156a8" />
+
+
+<img   alt="image @blackgirlscode" src="https://github.com/user-attachments/assets/31705dbc-fd3a-4e4e-8b47-d946109724e7" />
 
 ![image](https://github.com/user-attachments/assets/5be21c81-f8bd-4505-b33f-2fe7c7e1350e)
 
