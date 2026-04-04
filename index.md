@@ -13,6 +13,23 @@ mathjax: true
 ## Rashard Kelly 
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
+
+@nasa-jpl @foratlanta @la-county-isd  @blackgirlscode 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O-KDKBCPrwA?si=2h_WGFcPa0IzFz9H" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+[nasa.gov/missions/artemis-ii/arow/](https://www.nasa.gov/missions/artemis-ii/arow/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6f1dd528-4674-455f-b768-689785b1145c" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/bbb212c0-2391-4a53-a299-4f9a647e9613" />
+
+@nasa-jpl @foratlanta @la-county-isd 
+
+<div class="tumblr-post" data-href="https://embed.tumblr.com/embed/post/t:hsIohllJMfkyIQgV78AVaQ/692871881822502912/v2" data-did="684458ab7048ea2b063aec29af15e57bc6a2398b"  ><a href="https://www.tumblr.com/nasaorion/692871881822502912/how-to-use-data-from-nasas-arow-tweets">https://www.tumblr.com/nasaorion/692871881822502912/how-to-use-data-from-nasas-arow-tweets</a></div><script async src="https://assets.tumblr.com/post.js?_v=8b39daeb280af0fb41fe0827257f89f6"></script>
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">This account is officially archived. Follow <a href="https://twitter.com/NASAArtemis?ref_src=twsrc%5Etfw">@NASAArtemis</a>, <a href="https://twitter.com/NASA_Johnson?ref_src=twsrc%5Etfw">@NASA_Johnson</a>, and <a href="https://twitter.com/NASAKennedy?ref_src=twsrc%5Etfw">@NASAKennedy</a> for updated on the Orion spacecraft or visit us on the web at <a href="https://t.co/zz9NukZvsM">https://t.co/zz9NukZvsM</a> <a href="https://t.co/NLc77ZXTYO">pic.twitter.com/NLc77ZXTYO</a></p>&mdash; Orion Spacecraft (@NASA_Orion) <a href="https://twitter.com/NASA_Orion/status/1936129031121871215?ref_src=twsrc%5Etfw">June 20, 2025</a></blockquote> 
+
 # AnimalFarm 1954
 
 [imdb](https://www.imdb.com/title/tt0047834/) : [Wiki](https://en.wikipedia.org/wiki/Animal_Farm_(1954_film)) : [Archive](https://archive.org/details/animalfarm1954_20190809) : [:yt:](https://www.youtube.com/watch?v=CKJvwWyq2z0) : [🛒](https://www.amazon.com/Animal-Farm-Gordon-Heath/dp/B0002ZYDUG) : [@reddit](https://www.reddit.com/r/classicfilms/comments/1gjzpjd/animal_farm_1954/) : [🍅](https://www.rottentomatoes.com/m/animal_farm)
