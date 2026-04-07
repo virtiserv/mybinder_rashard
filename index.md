@@ -14,6 +14,38 @@ mathjax: true
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 
+# _NASA’s Artemis II Crew Beams Official Moon Flyby Photos to Earth_
+[Read @CityOfLosAngeles @la-county-isd @foratlanta @blackgirlscode](https://www.nasa.gov/news-release/nasas-artemis-ii-crew-beams-official-moon-flyby-photos-to-earth/) 
+[https://images-assets.nasa.gov/image/art002e009571/art002e009571~large.jpg?w=1920&h=1440&fit=clip&crop=faces%2Cfocalpoint](https://images-assets.nasa.gov/image/art002e009571/art002e009571~large.jpg?w=1920&h=1440&fit=clip&crop=faces%2Cfocalpoint)
+![https://images-assets.nasa.gov/image/art002e009571/art002e009571~large.jpg?w=1920&h=1440&fit=clip&crop=faces%2Cfocalpoint](https://images-assets.nasa.gov/image/art002e009571/art002e009571~large.jpg?w=1920&h=1440&fit=clip&crop=faces%2Cfocalpoint)
+
+[https://images-assets.nasa.gov/image/art002e009298/art002e009298~large.jpg?w=768&h=512&fit=crop&crop=faces%2Cfocalpoint](https://images-assets.nasa.gov/image/art002e009298/art002e009298~large.jpg?w=768&h=512&fit=crop&crop=faces%2Cfocalpoint) 
+![https://images-assets.nasa.gov/image/art002e009298/art002e009298~large.jpg?w=768&h=512&fit=crop&crop=faces%2Cfocalpoint](https://images-assets.nasa.gov/image/art002e009298/art002e009298~large.jpg?w=768&h=512&fit=crop&crop=faces%2Cfocalpoint) 
+
+[https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512](https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512)
+![https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512](https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512)
+
+[https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512](https://www.nasa.gov/wp-content/uploads/2026/04/art002e009288orig.jpg?resize=768,512)
+
+![images-assets.nasa.gov/image/art002e009289/art002e009289~large.jpg](https://images-assets.nasa.gov/image/art002e009289/art002e009289~large.jpg)
+
+[https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.04.07/pg-BR1A0000-2026040701_001_025.1.VNIR.jpg](https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.04.07/pg-BR1A0000-2026040701_001_025.1.VNIR.jpg) ![https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.04.07/pg-BR1A0000-2026040701_001_025.1.VNIR.jpg](https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.04.07/pg-BR1A0000-2026040701_001_025.1.VNIR.jpg)
+
+![image](https://github.com/user-attachments/assets/5be21c81-f8bd-4505-b33f-2fe7c7e1350e)
+
+# Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
+
+
+# today
+
+`CouncilWoman` Megan Kerr @StateOfCalifornia @Cityoflosangeles @la-county-isd [district5@longbeach.gov](mailto:district5@longbeach.gov)
+
+https://sdo.gsfc.nasa.gov/data/rules.php](https://sdo.gsfc.nasa.gov/data/rules.php)
+
+https://sdo.gsfc.nasa.gov/assets/img/dailymov/
+
+https://sdo.gsfc.nasa.gov/
+
 @nasa-jpl @foratlanta @la-county-isd  @blackgirlscode 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/O-KDKBCPrwA?si=2h_WGFcPa0IzFz9H" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
