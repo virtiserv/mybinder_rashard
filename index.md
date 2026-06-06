@@ -14,6 +14,10 @@ mathjax: true
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 
+<img  alt="image" src="https://github.com/user-attachments/assets/7a0609dd-96dd-488b-ae8e-e61d3ccef195" />
+
+[<video controls width="100%" height="auto" src="https://ia903206.us.archive.org/8/items/Feb29dump/WHiTEHOUSE_DNS_KiM_BRYANT_BLACKGiRLSCODE_ViRTiSERV_LATRiCE_RASHARDNASAJPL_KARENBASS_Recording_2026-05-22_112037.mp4" />](https://ia903206.us.archive.org/8/items/Feb29dump/WHiTEHOUSE_DNS_KiM_BRYANT_BLACKGiRLSCODE_ViRTiSERV_LATRiCE_RASHARDNASAJPL_KARENBASS_Recording_2026-05-22_112037.mp4)
+
 # LossLEss Gaming ?
 @StateOfCalifornia @la-county-isd sometimes i play videogames behind th thick stone walls of [city halls patio](https://www.loc.gov/pictures/item/ca1261/) to make the night go by faster and someone harasses me on `CityOfLA - Guest` and `LACOURT` and `LASCOURT` wifinetworks, like there is a wifi curfuew [[1](https://www.reddit.com/r/Parenting/comments/1rqcfd3/is_a_wifi_curfew_for_teens_and_light_internet/)]] [[@CityOfLosAngeles 2](https://superuser.com/questions/1118115/disabling-internet-curfew)] in [LA @nasa-jpl @nasa-pds @blueORigin @la-county-isd](https://firms.modaps.eosdis.nasa.gov/map/#d:24hrs;@-117.4,33.9,8.9z)
  
