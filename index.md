@@ -14,6 +14,11 @@ mathjax: true
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 
+[https://vsco.co/rashardsartu/gallery](https://vsco.co/rashardsartu/gallery)
+[https://vsco.co/earthdatarashard/gallery](https://vsco.co/earthdatarashard/gallery)
+
+[<video controls width="100%" height="auto" src="https://ia601704.us.archive.org/31/items/2025-12-20-00-00-2025-12-20-23-59-sentinel-2-l-2-a-true-color/000VSCOOVERViewRecording2026-06-09161554.mp4" />](https://ia601704.us.archive.org/31/items/2025-12-20-00-00-2025-12-20-23-59-sentinel-2-l-2-a-true-color/000VSCOOVERViewRecording2026-06-09161554.mp4)
+
 <img  alt="image" src="https://github.com/user-attachments/assets/7a0609dd-96dd-488b-ae8e-e61d3ccef195" />
 
 [<video controls width="100%" height="auto" src="https://ia903206.us.archive.org/8/items/Feb29dump/WHiTEHOUSE_DNS_KiM_BRYANT_BLACKGiRLSCODE_ViRTiSERV_LATRiCE_RASHARDNASAJPL_KARENBASS_Recording_2026-05-22_112037.mp4" />](https://ia903206.us.archive.org/8/items/Feb29dump/WHiTEHOUSE_DNS_KiM_BRYANT_BLACKGiRLSCODE_ViRTiSERV_LATRiCE_RASHARDNASAJPL_KARENBASS_Recording_2026-05-22_112037.mp4)
